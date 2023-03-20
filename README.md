@@ -35,10 +35,6 @@ Issued by Enterprise Development Center - Pan African University · Apr 2021Issu
 Certificate of completion of study
 
 Contact Information:
-Email: a.oginni@email.com
+Email: a.oginni@yahoo.com
 LinkedIn: linkedin.com/in/oginni-jeremiah
 
-
-
-
-Regenerate response
